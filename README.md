@@ -1,7 +1,8 @@
 here is the fucking backend for aura 
 this kid @jonesy.fnbr skidded this dont use its ass 
 idc abt the token if its in there and yeah and hes saying bs
-
+# READ IF CALLED SKID
+btw this is ***AI***
 cant say this is lit ai lol
 
 # Aura Backend - Complete Setup Guide
